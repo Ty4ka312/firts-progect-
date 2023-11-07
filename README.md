@@ -1,1 +1,7 @@
-# firts-progect-
+# firts-progect
+
+Xiaomi
+
+Автор проекта:
+
+
